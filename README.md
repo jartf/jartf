@@ -9,7 +9,6 @@ I'm Jarema, your local boy on the internet who just so happens to be able to rea
 - 💬 Ask me about anything really, just don't be too personal.
 - 📫 How to reach me: [check my website](https://jarema.me/contact).
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I never spoke a word until the age of 3. Parents were horrified the first time I spoke, since apparently I "spoke too fluently for a 3-year-old."
 
 ## Stats
 Here is my GitHub Stats.
